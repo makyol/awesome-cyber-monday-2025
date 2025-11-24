@@ -48,6 +48,7 @@ Cyber Monday is the perfect time to grab amazing deals on software, tools, cours
 |[MGC Animation](https://www.mingcute.com/animation?utm_source=punk) | 120+ lively and smooth animated icons | 30% OFF with code **BF2025** | [Get Deal](https://store.mingcute.com/?utm_source=punk) | Nov 15 - Dec 5 |
 |[MGC Weather](https://mgcweather.framer.website/?utm_source=punk) | 120 graceful weather icons | 30% OFF with code **BF2025** | [Get Deal](https://store.mingcute.com/?utm_source=punk) | Nov 15 - Dec 5 |
 | [Litur(macOS)](https://litur.app) | A designer’s best-kept secret, a developer's best friend. Litur helps you manage and improve your colors design workflow. | 30% OFF - NO CODE REQUIRED | [Get Deal](https://litur.app) | Nov 24th - Dec 4th |
+| [Recut](https://getrecut.com) | Edit your videos faster with automatic silence removal | $50 OFF (automatic) | [Get Deal](https://getrecut.com/?ref=awesome-cyber-monday) | Nov 3rd - Dec 1st |
 
 ## 📚 Courses & Learning
 
